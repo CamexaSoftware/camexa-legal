@@ -1,1 +1,1 @@
-Privacy Policy and Terms of Use for Camexa.
+Privacy Policy and Terms of Use for Camexa Coditor.
